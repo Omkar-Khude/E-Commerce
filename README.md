@@ -5,7 +5,7 @@
 ![Screenshot 2024-08-20 150429](https://github.com/user-attachments/assets/31a2bab0-84e7-4cfc-bdd4-71aaf7649ac4)
 
 
-![Screenshot 2024-08-20 150636](https://github.com/user-attachments/assets/e8132587-a64c-4fa2-9c5c-87612e291148
+![Screenshot 2024-08-20 150636](https://github.com/user-attachments/assets/e8132587-a64c-4fa2-9c5c-87612e291148)
 
 
 ![Screenshot 2024-08-20 150616](https://github.com/user-attachments/assets/7f008dfc-af30-44c1-86bd-3501957dbbee)
